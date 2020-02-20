@@ -15,3 +15,4 @@ Howdy partner. Let's milk some cows.
 No. I dont want those cows.
 
 WHY NOT? D:
+Cuz i wanna save those cows for that a5 wagyu beef >:D
