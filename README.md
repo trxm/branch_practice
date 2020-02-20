@@ -9,3 +9,4 @@ These are a few of my favorite things:
 - Not editing directly on GitHub
 - Talk to my friend
 - Eating Vietnamese food
+- Playing video games
